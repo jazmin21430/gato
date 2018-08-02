@@ -6,3 +6,4 @@ para que lo guarde como texto tienes que poner extension md
 
 Ahora , este comentario de Fredy para el Gato de Jaz .JAZ no te quedes
 
+Maestra, mi lombriz se metio a mi boca y me la tragué, me da otra??
